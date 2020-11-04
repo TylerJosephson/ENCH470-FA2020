@@ -2,3 +2,9 @@
 
 Learn how to use GitHub for final projects in ENCH 470!
 Most of what you need to learn can be found here: https://guides.github.com/activities/hello-world/
+
+---> Neil Tran <---
+
+༼ つ ◕_◕ ༽つ༼ つ ◕_◕ ༽つ༼ つ ◕_◕ ༽つ
+༼ つ ◕_◕ ༽つ༼ つ ◕_◕ ༽つ༼ つ ◕_◕ ༽つ
+༼ つ ◕_◕ ༽つ༼ つ ◕_◕ ༽つ༼ つ ◕_◕ ༽つ
